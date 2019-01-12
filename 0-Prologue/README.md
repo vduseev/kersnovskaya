@@ -1,0 +1,5 @@
+# You are not here, but you are in my heart
+
+Mother! My dear old girl! My first and last, the only and irreplaceable friend... You are long gone, yet I see you in everything that surrounds me: this chair - old and cozy (I bought it because you loved cozy things); table - lightweight and low, so that you could move it closer to you with no effort; lots of pillows - your zestre (mold. part of dower), so you could always feel comfortable; radio, turntable, lots of vinyl records (and how many you didn't buy yet!), you loved music so much! You lived by it! You needed it, like air... No wonder that on deathbed, visibly short of breath, you were asking to put a record of "Ivan Susanin". You lacked strength to sing along with the favorite arias, yet continued to conduct with a weakining hand: "...Rise, my last dawn..."
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lAv7c5pd0sc" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
